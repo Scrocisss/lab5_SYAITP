@@ -1,2 +1,2 @@
 # lab5_SYAITP
-https://disk.yandex.ru/d/Vx3OB53jMrqgFw
+https://disk.yandex.ru/d/tHr7TTj3FuBv7Q
